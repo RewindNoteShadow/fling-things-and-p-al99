@@ -1,4 +1,4 @@
-
+hidden Script for fling things and people is the best fling things and people Script, featuring no clip and no cooldown. Safe and powerful for all
 
 
 
